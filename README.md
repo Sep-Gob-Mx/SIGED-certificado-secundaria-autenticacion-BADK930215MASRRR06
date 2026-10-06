@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-BADK930215MASRRR06
+BADK930215MASRRR06
